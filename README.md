@@ -1,1 +1,1 @@
-Let’s move
+We are symbols, and inhabit symbols
